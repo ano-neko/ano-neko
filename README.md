@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I'm Maks, dude who love cats😺
+I'm Maks, dude who love cats
